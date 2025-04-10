@@ -1,1 +1,0 @@
-# Philosophia-Perennis
